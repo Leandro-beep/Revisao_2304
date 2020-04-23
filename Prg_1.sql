@@ -1,0 +1,1 @@
+Select *fron dual wrere
